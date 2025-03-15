@@ -1,0 +1,1 @@
+# 050-Second-hand-trading-platform
